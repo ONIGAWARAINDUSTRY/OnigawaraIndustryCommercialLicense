@@ -1,6 +1,6 @@
 # 利用規約
  
-制定者：ONIGAWARA INDUSTRY/Cap
+制定者：ONIGAWARA INDUSTRY/Cap  
 制定日：2020/03/14 
 ***
 
